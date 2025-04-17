@@ -1,1 +1,1 @@
-# inuuacreditloans
+# INUA-JAMII-LOANS
